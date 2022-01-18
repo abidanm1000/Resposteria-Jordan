@@ -1,4 +1,4 @@
-Thanks for downloading this theme!
+https://htmlpreview.github.io/?https://github.com/abidanm1000/Resposteria-Jordan/blob/main/index.html
 
 ## Other Useful Links
 
