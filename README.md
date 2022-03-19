@@ -1,4 +1,4 @@
-https://htmlpreview.github.io/?https://github.com/abidanm1000/Resposteria-Jordan/blob/main/index.html
+https://youthful-cori-b41833.netlify.app/
 
 ## Other Useful Links
 
